@@ -1,37 +1,5 @@
-## Welcome to GitHub Pages
-
-You can use the [editor on GitHub](https://github.com/Fabian9649/6-mese-AAaa/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Fabian9649/6-mese-AAaa/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<title> MIniñaherm0o0o0sa</title>
+MiviimditaaaAfkkkkk 6 mEeeEseEesmiam0o0or
+<h2>mic0o0orazomcit0o0 sabes ahoritam justo ahoritam te estoy viemd0o0 y es tan herm0o0so0 ver a la niña mas perfecta del munmdit0o0o a esa niña que agradezc0o0tanto que haya estado ese dia ,en esa partida de val , ese jueg0o0 que un chot0oporciert0o pero0 god por hacer que esa niña , esa minita , esa limnda ,preciOOOosa ,cariño0o0sa , herm0o0sa , perfecta bebe haya estado ese dia porque ese dia que la vi ,fue todo paramim fue desde ese diaque queria estar con ella ,queria que ella sea mi novia ,mi minita , y fkkk ah0o0ra la eri miam0o0r eri minila . mi bebe , mivimditaaAA, micorazomcito0o, mi futura espo0sa , el am0o0r de mivida poque eso y mas eri para mim miam0o0r y fkkk ahoritam que estas haciemd0o0 tus  comsitas es tan perfecto tan solo0o verte porque simplemen eri asombr0o0o0sa , erifkkkk eri AAaaAAA❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤</h2>
+<h2>eri t0od0o0 para mim bebe , h0o0ney te jur0o0 quenunca quer0o0 estar en otor camino bebe ,jamas quero0 tomar algun camino distintoo0 porque bebEEjamas podria porque tu eri mi camino , eri t0o0dpara mim , y sabeEesbehe cuando veo tu camrita es tanherm0o0s0 no hay nada que quisiera cambiar porque eriherm0o0O0Osa asi como eri ,con tus imperfecciones que crees tener , son lo que mas herm0o0sa te hacen oaramim y fkkk cuand0o0sonries cuando hjaces cuaqueri cooOOomsita me enamoOOoras muchsiissmoOOoMAS MIAMoOOOor❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤</h2>
+<h1><p style="color:MediumSlateBlue;"> y es quefkk miam0o0r jamas me cansare de decir que fkk es que estanherm0o0O0O0os0o ver como pas0oOOOooel tiempOOOver como desde ese 1 de octubre que te dije para que estuvieramos , es todo tanhermoso ver que desde ese momento (desde mucho atras) no he dejado0o de amarte bebe , cada dia lohag0o0muchisism0o0 mas y maAaaAAs cada dia poo0oque eri alm0'op0o0o0O0o0rdembIIDidiidIMITAM0O0o0o0R MISOooLECIT0O miIT0DO0O0O0❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤</h1>
