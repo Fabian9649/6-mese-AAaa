@@ -15,4 +15,6 @@ MiviimditaaaAfkkkkk 6 mEeeEseEesmiam0o0or
           <h2>miam0o0r sabEeESbbebe n0o0sabees que feli me haceEe saber que cumplim0os 6 meses bebe ,.se quen0o0fuer0on los mej0res bbe hubo algunas peleityas miamo0r pero0 aunque hayan pasado tantas co0sas lo que nunca cambiaRaaAA es t0o0d0 el am0o0r to00odo el carilOOoOM todo lo que siento poOOrtim asi aveces te pases de amoro00sa ,asi y con todos los defectos que tu crees que tienes , con to00d0o eso te ma0obebe poque para mi esos defecto0s te hacen perfecta cariñOOoom , teadoOOOoooOORo miviIiiimdiTAaaaAa❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤
 <img src="https://pm1.narvii.com/7480/9a3a80e1db0d820cd6c41cf3406136df68289b63r1-1280-720v2_hq.jpg">
                     <h3>concheEe n0o0ESOOO0O ERA TIO0O00</h3>
+                    <img src="https://c.tenor.com/yi8YH1G0Z3oAAAAC/xdd-shitpost.gif">
+                    <H1>UWUWU</H1>
                     
