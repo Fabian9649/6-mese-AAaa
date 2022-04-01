@@ -1,5 +1,5 @@
 <title> MIniñaherm0o0o0sa</title>
-<body bgcolor="LightGoldenRodYellow">
+<body bgcolor="LightCyan">
           <img src="https://pa1.narvii.com/7707/b567928b5c78e15f517f40fc504f65c88082107ar1-450-150_hq.gif">
           <p>otravezpque cheEemsesg0o0oduwu</p>
 MiviimditaaaAfkkkkk 6 mEeeEseEesmiam0o0or
