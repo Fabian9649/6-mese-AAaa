@@ -1,5 +1,5 @@
 <title> MIniñaherm0o0o0sa</title>
-<body bgcolor="GoldenRod">
+<body bgcolor="LightGoldenRodYellow">
           <img src="https://pa1.narvii.com/7707/b567928b5c78e15f517f40fc504f65c88082107ar1-450-150_hq.gif">
           <p>otravezpque cheEemsesg0o0oduwu</p>
 MiviimditaaaAfkkkkk 6 mEeeEseEesmiam0o0or
@@ -18,6 +18,6 @@ MiviimditaaaAfkkkkk 6 mEeeEseEesmiam0o0or
                     <img src="https://c.tenor.com/yi8YH1G0Z3oAAAAC/xdd-shitpost.gif">
                     <H1>UWUWU</H1>
                     <h2>sabeEesh0o0oNEYt0od0o0 este timepito0m contigo desdequeteconoci to00d0os los idas no00paro de creaAarrecuerdo0s a tu lamdito0 todos los dias hay alg0onuevoquepatsiasiempre bebe ycada c0o0sa qeupatsyia es hermo0sa gracias a tim bee po0quetula hacesperfectaaAbebe h0oney fkkk deveritas n0o0sabes lo mucsiisism0O0uqetema0o0O0 n0o0sabesquetant0o0o me haces feli miam0o0or teadk0or0o0 mico0o0orazoOMCITOoOOoOO❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤
-                              <img src="https://c.tenor.com/vm-GPMUEfPcAAAAM/dog.gif">
+                             <br> <img src="https://c.tenor.com/vm-GPMUEfPcAAAAM/dog.gif">
                               <h3>ira bebe el paanaeduard0o0 43 año0os demalasuerte ci noOOomedas 51029481248 de bemchito0s ahoritam wuwuuWUuwuWUuwUEUueUEUueUEU
                     
